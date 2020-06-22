@@ -15,3 +15,5 @@ Lenny Bellardo is a complex and conflicted character, so conservative in his cho
 * questioning
 * concerned
 
+> Absense is presense.
+> These are the fundamentals of mystery. 
