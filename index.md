@@ -17,3 +17,6 @@ Lenny Bellardo is a complex and conflicted character, so conservative in his cho
 
 > Absense is presense.
 > These are the fundamentals of mystery. 
+
+<img src="https://static.independent.co.uk/s3fs-public/thumbnails/image/2017/01/16/10/young-pope.jpg"/>
+
